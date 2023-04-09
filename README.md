@@ -1,1 +1,2 @@
-# THI-T-K-PH-N-M-M-H-NG-I-T-NG
+# Nhóm 21
+# Quản lí ứng dụng học tiếng Anh 
